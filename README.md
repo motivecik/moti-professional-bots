@@ -13,5 +13,6 @@ gördüğünüz bütün botları unutun!
 ![image](https://cdn.discordapp.com/attachments/988623590729584640/1016420864616574976/unknown.png)
 ![image](https://cdn.discordapp.com/attachments/988623590729584640/1016421006082068580/unknown.png)
 ![image](https://cdn.discordapp.com/attachments/988623590729584640/1016421091826221146/unknown.png)
+![image](https://cdn.discordapp.com/attachments/988623590729584640/1016423973027860641/unknown.png)
 
 
